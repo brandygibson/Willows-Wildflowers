@@ -90,5 +90,4 @@ Made from scratch. Made with heart.
 
 ⸻
 
-© 2026 Willow’s Wildflowers Micro Bakery
-Chillicothe, Ohio
+© 2026 Willow’s Wildflowers
